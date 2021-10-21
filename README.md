@@ -1,0 +1,1 @@
+# 8sinif-spoiler-paragraf-soru-bankasi-32
